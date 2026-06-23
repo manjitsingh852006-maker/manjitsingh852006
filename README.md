@@ -26,4 +26,4 @@ Computer Science Engineering student passionate about Software Development, Arti
 
 ## Connect With Me
 
-LinkedIn: Add your LinkedIn profile link
+LinkedIn: www.linkedin.com/in/manjit-singh-403830418
